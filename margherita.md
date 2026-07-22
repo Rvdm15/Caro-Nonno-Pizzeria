@@ -4,6 +4,7 @@ Ingrediënten
 1 handje verse basilicum blaadjes
 1 eetlepel olijfolie
 Snufje zout en peper
+Schijfjes tomaat
 
 Bereiding
 Zet de oven op de hoogste stand, het liefst op 220°C tot 250°C.
