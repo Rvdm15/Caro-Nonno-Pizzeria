@@ -7,6 +7,7 @@ Snufje zout en peper
 Schijfjes tomaat
 Strooi er verse oregano over
 Voeg verse tijm toe
+Strooikaas toevoegen
 
 Bereiding
 Zet de oven op de hoogste stand, het liefst op 220°C tot 250°C.
