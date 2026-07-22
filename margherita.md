@@ -5,6 +5,7 @@ Ingrediënten
 1 eetlepel olijfolie
 Snufje zout en peper
 Schijfjes tomaat
+Strooi er verse oregano over
 
 Bereiding
 Zet de oven op de hoogste stand, het liefst op 220°C tot 250°C.
