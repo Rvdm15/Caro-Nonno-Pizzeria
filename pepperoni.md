@@ -4,6 +4,8 @@ Ingrediënten
 75 gram pepperoni of pittige salami (in dunne plakjes)
 1 theelepel gedroogde oregano
 Optioneel: Chilivlokken voor extra pittigheid
+Optioneel: voeg groene olijven toe
+
 
 Zet de oven op de hoogste stand, rond 220°C tot 250°C.
 Rol het deeg met het bakpapier uit op een bakplaat.
