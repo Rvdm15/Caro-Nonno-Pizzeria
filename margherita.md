@@ -1,5 +1,6 @@
 Ingrediënten
 1 rol kant-en-klaar pizzadeeg (met extra barbecuesaus)
+1 rol kant-en-klaar pizzadeeg (met bonensaus)
 1 bol mozzarella (150 gram)
 1 handje verse basilicum blaadjes
 1 eetlepel olijfolie
