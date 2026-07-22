@@ -4,6 +4,7 @@ Ingrediënten
 50 gram gorgonzola of roquefort (verbrokkeld)
 50 gram taleggio of jonge Goudse kaas (in blokjes)
 30 gram Parmezaanse kaas (geraspt)
+30 gr cheddar cheese
 1 theelepel gedroogde oregano
 
 Bereiding
