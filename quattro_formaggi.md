@@ -7,6 +7,8 @@ Ingrediënten
 30 gr cheddar cheese
 1 theelepel gedroogde oregano
 1 trostomaatje
+5 groene hete pepers
+
 
 Bereiding
 Zet de oven op de hoogste stand, rond 220°C tot 250°C.
