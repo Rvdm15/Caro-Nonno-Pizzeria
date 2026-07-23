@@ -7,6 +7,7 @@ Optioneel: Chilivlokken voor extra pittigheid
 Optioneel: voeg groene olijven toe
 Optioneel: voeg champignons toe
 Serveer met servetje
+Add 2 red peppers
 
 
 

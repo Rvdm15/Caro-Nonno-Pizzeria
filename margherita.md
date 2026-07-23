@@ -10,6 +10,7 @@ Strooi er verse oregano over
 Voeg verse tijm toe
 Strooikaas toevoegen
 Extra kaas op verzoek
+Add 1 spoon chili oil
 
 Bereiding
 Zet de oven op de hoogste stand, het liefst op 220°C tot 250°C.
