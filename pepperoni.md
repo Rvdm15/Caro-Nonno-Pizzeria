@@ -6,6 +6,8 @@ Ingrediënten
 Optioneel: Chilivlokken voor extra pittigheid
 Optioneel: voeg groene olijven toe
 Optioneel: voeg champignons toe
+Add 2 red peppers
+
 
 
 Zet de oven op de hoogste stand, rond 220°C tot 250°C.
